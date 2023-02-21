@@ -1,0 +1,1 @@
+# Ejercicio para postulación a Soy ISO-digital
